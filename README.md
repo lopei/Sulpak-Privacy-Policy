@@ -1,1 +1,0 @@
-# Sulpak-Privacy-Policy
